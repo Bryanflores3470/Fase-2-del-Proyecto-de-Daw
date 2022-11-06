@@ -10,8 +10,12 @@ Link de manual de Usuario
 https://view.genial.ly/6361b775385d2500189eb634/interactive-content-manual-de-usuario
 
 link de manual Tecnico
+https://pdf.ac/1JlCQa
+
 
 Link de Trello
 https://trello.com/invite/b/OM9xj2q5/ATTI3b7e714032f28eef89e3ee5cd5df2219A974E1CC/fase-2-daw
 
 Link de Mokups 
+https://balsamiq.cloud/s16sitx/ppvldz6/rE39C
+
